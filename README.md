@@ -14,6 +14,4 @@
 ### Friends:
 - everyone
 ### Relationship goals:
-- Mr Copley
-- Kieran
-  
+- KierKier Pookie Bear
